@@ -15,7 +15,7 @@
 
 - 📄 Know about my experiences [https://indigo-lotti-16.tiiny.site](https://indigo-lotti-16.tiiny.site)
 
-- ⚡ Fun fact **I can solve the 3x3, 4x4, 5x5, Pyraminx, Megaminx, Mirror cube**
+- ⚡ Fun fact **I can solve the 3x3, 4x4, 5x5 Rubik's Cubes, Pyraminx, Megaminx, and Mirror cube**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
