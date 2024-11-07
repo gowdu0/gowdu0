@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **shanyugowdu2@gmail.com**
 
-- 📄 Know about my experiences [https://indigo-lotti-16.tiiny.site](https://indigo-lotti-16.tiiny.site)
+- 📄 Resume - Know about my experiences https://apricot-venita-41.tiiny.site
 
 - ⚡ Fun fact **I can solve the 3x3, 4x4, 5x5 Rubik's Cubes, Pyraminx, Megaminx, and Mirror cube**
 
