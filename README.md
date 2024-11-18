@@ -7,7 +7,7 @@
 
 - 🔭 I’m currently working on [NBA Player Stats - Machine Learning Model](https://github.com/gowdu0/MachineLearningModel)
 
-- 🌱 I’m currently learning to acquire **Google Cloud certifiation**
+- 🌱 I’m currently learning to acquire **Google AI certifiation**
 
 - 💬 Ask me about **The future of AI, NBA, and College football**
 
